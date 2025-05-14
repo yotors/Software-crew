@@ -1,0 +1,1 @@
+![A2A vs MCP](https://media.licdn.com/dms/image/v2/D5622AQGtBESqSfcjsQ/feedshare-shrink_1280/B56ZY5c2cXH0Ak-/0/1744720592440?e=2147483647&v=beta&t=9JCK9BHTB0oTDTxXxCinQMdZocjALKkSNt9yYgnXBAg)
